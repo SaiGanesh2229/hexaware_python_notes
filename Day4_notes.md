@@ -1,0 +1,1 @@
+aggregation stands for summarisation.
